@@ -1,1 +1,1 @@
-# Lasles-VPN-Company
+# Lasles VPN Company
